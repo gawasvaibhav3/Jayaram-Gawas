@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **gawasvaibhav3@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19JsDRd3jNClisZMyuydOAShR1kpH5Pey/view?usp=sharing](https://drive.google.com/file/d/19JsDRd3jNClisZMyuydOAShR1kpH5Pey/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19JsDRd3jNClisZMyuydOAShR1kpH5Pey/view?usp=sharing]([https://drive.google.com/file/d/19JsDRd3jNClisZMyuydOAShR1kpH5Pey/view?usp=sharing](https://drive.google.com/file/d/1-IqU2SHNG6qpGmSU2b6XziayDiNxs9Cf/view?usp=sharing))
 
 - ⚡ Fun fact **Coding is EASY**
 
